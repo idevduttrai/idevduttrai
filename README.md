@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @idevduttrai
+- 👀 I’m interested in UI/UX Designing
+- 🌱 I’m currently learning about UI/UX designing with Figma
+- 📫 How to reach me devduttrai2353@gmail.com
